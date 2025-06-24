@@ -6,5 +6,9 @@ Hello, as i mentioned in my bio, I am learning to code from sratch. This is just
 
 
 
-https://github.com/user-attachments/assets/8b8bf656-158f-43ab-bfbe-95805ac93dcd
+
+
+
+https://github.com/user-attachments/assets/88f89f9b-8b4c-4fcc-891e-777e8d046018
+
 
